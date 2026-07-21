@@ -6,17 +6,6 @@ cis guy + aroace
 -
 </p>
 
-<p align="center">
-username only used to claim the name
-</p>
-
-<p align="center">
-i am no longer in the mcyt fandom
-</p>
-
-<p align="center">
--
-</p>
 
 <p align="center">
 not interested in getting closer to anyone else
