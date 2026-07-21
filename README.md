@@ -15,7 +15,7 @@ cis guy + aroace
 </p>
 
 <p align="center">
-8teen
+i follow anyone that i deem cool (or just randoms)
 </p>
 
 <p align="center">
