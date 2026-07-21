@@ -15,7 +15,7 @@ john wick kinnie
 </p>
 
 <p align="center">
-i follow anyone that i want to (or just randoms)
+very mentally unwell. i suck at communicating and lost many friends so please communicate with me if anything is wrong.
 </p>
 
 <p align="center">
