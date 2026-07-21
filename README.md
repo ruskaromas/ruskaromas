@@ -1,16 +1,31 @@
-## Hi there 👋
+<p align="center">
+cis guy + aroace
+</p>
 
-<!--
-**ruskaromas/ruskaromas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+-
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+username only used to claim the name
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+i am no longer in the mcyt fandom
+</p>
+
+<p align="center">
+-
+</p>
+
+<p align="center">
+not interested in getting closer to anyone else
+</p>
+
+<p align="center">
+-
+</p>
+
+<p align ="center">
+although, you may interact freely as you wish
+</p>
