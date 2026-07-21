@@ -15,7 +15,7 @@ john wick kinnie
 </p>
 
 <p align="center">
-very mentally unwell. i suck at communicating and lost many friends so please communicate with me if anything is wrong.
+very mentally unwell. audhd and diagnosed severe chronic depression and ptsd. 
 </p>
 
 <p align="center">
