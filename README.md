@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-cis guy + aroace
+john wick kinnie
 </p>
 
 <p align="center">
