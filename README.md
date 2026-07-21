@@ -1,4 +1,12 @@
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=ruskaromas&color=000000&style=flat-square&title=victims&label=victims" alt="victims" />
+</p>
+
+<p align="center">
+  -
+</p>
+
+<p align="center">
 cis guy + aroace
 </p>
 
