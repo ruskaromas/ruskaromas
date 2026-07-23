@@ -15,7 +15,7 @@ john wick kinnie
 </p>
 
 <p align="center">
-very mentally unwell. audhd and diagnosed severe chronic depression and ptsd. 
+c+h freely
 </p>
 
 <p align="center">
