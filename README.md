@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-john wick kinnie
+med student and a soldier-in-training irl
 </p>
 
 <p align="center">
